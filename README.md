@@ -1,2 +1,5 @@
-html/css/js/node/rust/c++ 🤓
-(ew ugly ahh emoji)
+🇩🇿🦀
+
+rust/cpp
+
+i use arch btw
